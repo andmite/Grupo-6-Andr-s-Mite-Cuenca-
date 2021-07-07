@@ -1,1 +1,1 @@
-# Grupo-6-Andres-Mite-Cuenca-
+# Grupo 6 Andrés Mite Cuenca
